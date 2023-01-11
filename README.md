@@ -1,2 +1,2 @@
-# huelor.gifthub.io
+# huelor.github.io
 Kaye Patricia DP. Macandog
