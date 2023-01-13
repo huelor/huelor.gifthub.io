@@ -9,4 +9,4 @@ Kaye Patricia DP. Macandog
 
 | Twice | BlackPink | Itzy | Aespa |  
 | ----------- | ----------- | ----------- | ----------- |
-|  | Hirai Momo | Jisoo | Ryujin | Karina
+| Hirai Momo | Jisoo | Ryujin | Karina
