@@ -5,4 +5,3 @@ Kaye Patricia DP. Macandog
 
 [`Facebook`](https://www.facebook.com/kayepatriciaa)
 
-![raimo](https://www.pinterest.ph/pin/585679126557750803/).jpg)
