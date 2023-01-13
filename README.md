@@ -5,7 +5,7 @@ Kaye Patricia DP. Macandog
 
 [`Facebook`](https://www.facebook.com/kayepatriciaa)
 
-![Taylor](![image](https://user-images.githubusercontent.com/122424239/212255061-e0eb09c5-dc2c-4fa8-97fe-3f6a3a2b36d5.png)
+![image](https://user-images.githubusercontent.com/122424239/212255061-e0eb09c5-dc2c-4fa8-97fe-3f6a3a2b36d5.png)
 
 > *Album Faves*
 
