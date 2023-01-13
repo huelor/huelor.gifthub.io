@@ -1,12 +1,12 @@
 # huelor.github.io
 Kaye Patricia DP. Macandog
 
-> *hirai momo*
+> *Taylor Swift*
 
 [`Facebook`](https://www.facebook.com/kayepatriciaa)
 
-(![image](https://user-images.githubusercontent.com/122424239/212251841-2c1c7364-95ea-4bf4-b7f8-121ca526568f.png)
+(![image](![image](https://user-images.githubusercontent.com/122424239/212253636-201c77fb-5b75-4186-a2d9-dbaf561d7e07.png)
 
-| Twice | BlackPink | Itzy | Aespa |  
+| Speak Now | Lover | Red | Midnights |  
 | ----------- | ----------- | ----------- | ----------- |
-| Hirai Momo | Jisoo | Ryujin | Karina
+| Sparks Fly | Afterglow | Stay Stay Stay | Lavender Haze
