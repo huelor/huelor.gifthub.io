@@ -8,6 +8,9 @@ Kaye Patricia DP. Macandog
 
 ![image](https://user-images.githubusercontent.com/122424239/212255061-e0eb09c5-dc2c-4fa8-97fe-3f6a3a2b36d5.png)
 
+> **Taylor Alison Swift (born December 13, 1989) is an American singer-songwriter. Her discography spans multiple genres, and her songwriting—often inspired by her personal life—has received critical praise and wide media coverage. Born in West Reading, Pennsylvania, Swift moved to Nashville at age 14 to become a country artist. She signed a songwriting deal with Sony/ATV Music Publishing in 2004 and a recording contract with Big Machine Records in 2005.** 
+
+
 > *Album Faves*
 
 | Speak Now | Lover | Red | Midnights |  
